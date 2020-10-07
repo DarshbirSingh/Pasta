@@ -1,0 +1,1 @@
+ water and semolina flour; egg for colour and richness (in some types of pasta), and possibly vegetable juice (such as spinach, beet, tomato, carrot), herbs or spices for colour and flavour.
